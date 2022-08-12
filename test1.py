@@ -1,0 +1,21 @@
+fkdh
+fffhgf
+deffh
+vbg
+edff
+fefgfg
+ffrhghe
+gtu
+r
+ewty
+yttt
+memoryviewty
+help(gg
+     getattr(memoryviewt
+             gf
+try:raise ff
+try:feg
+bytesyre
+try:t4t
+e
+r))
